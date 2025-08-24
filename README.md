@@ -1,6 +1,12 @@
 # ALFA-PointOfSales-POS-Project
 
 This was my Grade 12 project created in Visual Studio.  
+We were asked to build a program we want if I'm not mistaken there was 2 choice we were given
+A. System
+B. Game
+
+I wasn't really a big fan of games those times so I choose system which I always liked the most and named my Company "Azure Solutions" lol
+So I'm pretty sure the codes here are well... :> Not so pro LMAO 
 
 👉 [Download here](https://www.mediafire.com/file/yptk4qr2gxh7aol/AlfaPOS2.zip/file)  
 
