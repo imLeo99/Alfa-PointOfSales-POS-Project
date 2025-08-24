@@ -5,8 +5,7 @@ We were asked to build a program we want if I'm not mistaken there was 2 choice 
 A. System
 B. Game
 
-I wasn't really a big fan of games those times so I choose system which I always liked the most and named my Company "Azure Solutions" lol
-So I'm pretty sure the codes here are well... :> Not so pro LMAOOO 
+I wasn't really a big fan of games those times so I choose system which I always liked the most and named my Company "Azure Solutions" lol why not right?🗿
 
 Feel free to look at the pics I uploaded:D
 
