@@ -56,5 +56,27 @@ Feel free to look at the pics I uploaded:D
 ## 15
 <img width="1142" height="682" alt="Screenshot 2024-01-21 015120" src="https://github.com/user-attachments/assets/3bb177f0-6d33-49ad-aaa6-6f13302450c9" />
 
-##16
+## 16
 <img width="1140" height="681" alt="Screenshot 2024-01-21 015225" src="https://github.com/user-attachments/assets/f5e60818-5798-477b-a01a-4d54fe7c27f7" />
+
+## 17
+<img width="1140" height="681" alt="Screenshot 2024-01-21 015225" src="https://github.com/user-attachments/assets/d27e43de-b88b-4015-94a9-93cfdcdb63c5" />
+
+## 18
+<img width="1137" height="678" alt="Screenshot 2024-01-21 015240" src="https://github.com/user-attachments/assets/532e2300-78ee-4f6c-9988-d27e993d59f9" />
+
+## 19
+<img width="1138" height="678" alt="Screenshot 2024-01-21 015253" src="https://github.com/user-attachments/assets/5ae4c9c1-2f1d-4cbb-b7f5-7d7d9fae7a4a" />
+
+## 20
+<img width="1133" height="680" alt="Screenshot 2024-01-21 015310" src="https://github.com/user-attachments/assets/717a7320-e806-439c-8656-63ded0960d14" />
+
+## 21
+<img width="1142" height="682" alt="Screenshot 2024-01-21 015328" src="https://github.com/user-attachments/assets/55715ea3-673d-48b2-bcc8-7ef8c3dd13f4" />
+
+## 22
+<img width="1140" height="680" alt="Screenshot 2024-01-21 015346" src="https://github.com/user-attachments/assets/1c9ed3c2-f619-4285-9d3d-7d2eab64d14e" />
+
+## 23
+<img width="1140" height="682" alt="Screenshot 2024-01-21 015404" src="https://github.com/user-attachments/assets/a6d44383-fa1c-4358-962b-02b4a3efc02f" />
+
